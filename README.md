@@ -1,2 +1,1 @@
-# Fortnite-Battle-Pass
-Pro Fortnite Battle Pass for you!
++1 Fortnite Battle Pass
